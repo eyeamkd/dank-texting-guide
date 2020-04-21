@@ -13,6 +13,6 @@ Feel free to collaborate
 | niBBa          | noob guy who tries to be cool                                    |
 | oof moment     | when you mess something up                                       |
 | br00 moment    | when you and your friend say the same thing, unknowningly        |   
-| kek            |                                                                  |
-| sad niBBa hours|                                                                  |
+| kek            |LEL in 4chan slang                                                |
+| sad niBBa hours|that time when you're sad                                         |
  
