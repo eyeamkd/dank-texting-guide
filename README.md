@@ -12,4 +12,7 @@ Feel free to collaborate
 | LeL            | LOL but not as much                                              |
 | niBBa          | noob guy who tries to be cool                                    |
 | oof moment     | when you mess something up                                       |
-| br00 moment    | when you and your friend say the same thing, unknowningly        |
+| br00 moment    | when you and your friend say the same thing, unknowningly        |   
+| kek            |                                                                  |
+| sad niBBa hours|                                                                  |
+ 
