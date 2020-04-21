@@ -1,5 +1,7 @@
 # Dank Texting Guide 
-Dank Texting Reference for everyone
+Dank Texting Reference for everyone 
+
+Feel free to collaborate
 
 <ul>Phrases  
   <li>Inb4 - Stands for "In Before", stating to say before <i>this</i> thing happens </li>
