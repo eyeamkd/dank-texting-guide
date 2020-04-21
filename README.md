@@ -3,6 +3,7 @@ Dank Texting Reference for everyone
 
 Feel free to collaborate
 
+
 | Phrase         | Meaning                                                          |
 |----------------|------------------------------------------------------------------|
 | inb4           | Stands for "In Before", stating to say before this thing happens |
